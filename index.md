@@ -5,3 +5,7 @@ Anna Kerrigan is nearly twelve years old and accompanies her father to visit Dex
 * Stylish
 * Great
 * Historical
+
+Financial Times wrote
+> Great historical fiction, flawlessly done!
+

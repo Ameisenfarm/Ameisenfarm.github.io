@@ -9,3 +9,6 @@ Anna Kerrigan is nearly twelve years old and accompanies her father to visit Dex
 Financial Times wrote
 > Great historical fiction, flawlessly done!
 
+<img src = "https://mp-prod-de-medialib.s3-eu-central-1.amazonaws.com/motivwelt/stockimage/lion-bilder-schwarz-weiss/frontal-view/lion-bilder-schwarz-weiss-l.jpg"/>
+
+
